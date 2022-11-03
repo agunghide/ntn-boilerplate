@@ -16,7 +16,7 @@ dat: voce quater attritas. Imagine quamquam quoque
 [projects](/projects) et sonabat Cybeleius
 albentes primaque sidera, omnia.
 
-## Apud sunt tes
+## Apud sunt
 
 Addidit nunc: finita tua celatos vacuos Morpheus tigridis videre. Et an in ne 
 scelus pluviaque fluitque consurgere dixit inficit est fecere atque voce perque
